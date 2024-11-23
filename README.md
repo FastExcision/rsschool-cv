@@ -1,0 +1,1 @@
+https://FastExcision.github.io/rsschool-cv/cv
